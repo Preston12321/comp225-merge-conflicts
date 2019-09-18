@@ -1,4 +1,4 @@
-##Chapter 4: Blue Tooth
+# Chapter 4: Blue Tooth
 
 What makes Blue so special is her blue tooth.
 Even she doesn't know the extent of its powers.

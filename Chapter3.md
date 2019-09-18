@@ -1,4 +1,4 @@
-##Chapter 3: Blue, Who?
+# Chapter 3: Blue, Who?
 
 She is shrouded in mystery.
 Who is Blue?
