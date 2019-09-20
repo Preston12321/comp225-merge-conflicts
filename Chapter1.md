@@ -8,3 +8,5 @@ Blue always loved the smell of pepper.
 Blue also loves spicy foods.
 
 Possibility 3 - Cheese Black Hole: Blue is in the Black Hole in Steve's backyard and probably can never come out!
+
+Possibility 4 - The Black Hole was actually a wormhole to a new universe where all life is modeled after Blue.
