@@ -1,6 +1,10 @@
 # Chapter 1: Where is Blue?
-Attempt 1 Potato Spaceship: A spaceship made from potato, where potators reside. We skipped the chocolate spaceship. No Chocolaters. ERRRRR
+Possibility 1 - Potato Spaceship: A spaceship made from potato, where "potators" reside.
+Blue could be anywhere in this spaceship.
+Potatoes are Blue's favorite!
 
-Attempt 2 Pepper shotgun: A shotgun using pepper, big enough to hide somthing like Blue
+Possibility 2 - Pepper shotgun: A shotgun using pepper, big enough to hide something or someone, like Blue.
+Blue always loved the smell of pepper.
+Blue also loves spicy foods.
 
-Attempt 3 Cheese Blackhole: we are in the blackhole and probably can never come out
+Possibility 3 - Cheese Black Hole: Blue is in the Black Hole in Steve's backyard and probably can never come out!
